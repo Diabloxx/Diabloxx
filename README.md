@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Diabloxx
-- 👀 I’m interested in GTARP and Cars
+- 👀 I’m interested in WoW Emulation
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on GTARP Servers
-- 📫 How to reach me Valleriaa#3262
+- 💞️ I’m looking to collaborate on WoW Servers
+- 📫 How to reach me Valleriaa (Discord)
